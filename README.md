@@ -27,6 +27,6 @@ Here are some ideas to get you started:
 - Web development
 
 ## 📫 Hit me up
-Email: [rasyid8nuruddin@gmail.com](rasyid8nuruddin@gmail.com)
-Instagram: [whorsyd](instagram.com/whorsyd)
-LinkedIn: [Muhammad Rasyid Nuruddin](https://id.linkedin.com/in/muhammad-rasyid-nuruddin-60b18226a)
+- Email: [rasyid8nuruddin@gmail.com](rasyid8nuruddin@gmail.com)
+- Instagram: [whorsyd](instagram.com/whorsyd)
+- LinkedIn: [Muhammad Rasyid Nuruddin](https://id.linkedin.com/in/muhammad-rasyid-nuruddin-60b18226a)
